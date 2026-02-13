@@ -1,2 +1,3 @@
-im 2 lazy to make a theme for thsi just check out my main account for other links ok thx 👍👍👍👍👍
-
+<p align="center"
+  
+![](https://media1.tenor.com/m/ETshVS1KZg0AAAAd/squirtbelching-ultrakill.gif)
