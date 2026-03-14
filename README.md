@@ -1,3 +1,3 @@
 <p align="center"
   
-![](https://media1.tenor.com/m/ETshVS1KZg0AAAAd/squirtbelching-ultrakill.gif)
+![](https://files.catbox.moe/q0ecmo.png)
