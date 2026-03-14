@@ -1,3 +1,3 @@
 <p align="center"
   
-![](https://files.catbox.moe/q0ecmo.png)
+![](https://files.catbox.moe/ws6q9o.png)
